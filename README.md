@@ -1,0 +1,2 @@
+# ki-iselsayfam
+detaylandırmaya devammm
